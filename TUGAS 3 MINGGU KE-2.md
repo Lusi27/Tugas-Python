@@ -1,0 +1,7 @@
+![TUGAS 3 MINGGU KE-2-1](https://user-images.githubusercontent.com/80504157/195995816-5a276acd-adbc-409e-9e26-096b855ec1da.png)
+![TUGAS 3 MINGGU KE-2-2](https://user-images.githubusercontent.com/80504157/195995823-318a127e-82fe-48f4-9c6d-7b31993fa3dc.png)
+![TUGAS 3 MINGGU KE-2-3](https://user-images.githubusercontent.com/80504157/195995835-6454677f-939c-4dd1-9c78-8bb5f04e5b2e.png)
+![TUGAS 3 MINGGU KE-2-4](https://user-images.githubusercontent.com/80504157/195995839-542d735f-263f-4c56-a26f-e94ef4758a29.png)
+![TUGAS 3 MINGGU KE-2-5](https://user-images.githubusercontent.com/80504157/195995846-2d7e7a9d-4d9e-4344-8ca2-91b52620e91e.png)
+![TUGAS 3 MINGGU KE-2-6](https://user-images.githubusercontent.com/80504157/195995849-3b7999e7-cf16-4981-9050-d4725e122aa9.png)
+![TUGAS 3 MINGGU KE-2-7](https://user-images.githubusercontent.com/80504157/195995855-902826bd-8914-40fd-9eb7-15a64e478576.png)
