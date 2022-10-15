@@ -1,0 +1,5 @@
+![TUGAS 5 MINGGU KE-2-1](https://user-images.githubusercontent.com/80504157/195996208-7b2fcac3-a97a-436b-8577-2c661fa90f38.png)
+![TUGAS 5 MINGGU KE-2-2](https://user-images.githubusercontent.com/80504157/195996212-89c67b7c-bc28-4a05-930e-a2dfa18ebcbd.png)
+![TUGAS 5 MINGGU KE-2-3](https://user-images.githubusercontent.com/80504157/195996217-d98fe7bc-bf6a-4ec5-b07a-93c12c06e3c0.png)
+![TUGAS 5 MINGGU KE-2-4](https://user-images.githubusercontent.com/80504157/195996226-1ee27f48-638d-4263-9099-2a9e8b633a91.png)
+![TUGAS 5 MINGGU KE-2-5](https://user-images.githubusercontent.com/80504157/195996228-c699403a-21b3-4848-8e8e-ddcc522a1b70.png)
